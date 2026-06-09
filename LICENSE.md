@@ -1,4 +1,4 @@
-# 
+# Élite dexscreener sniper bot plugins para Mac OS | Turbo dexscreener sniper bot plugins para PC Windows. Con control de deslizamiento y fuentes en tiempo real — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
